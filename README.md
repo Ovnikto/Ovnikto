@@ -1,5 +1,5 @@
 i deadass give up 😭 why my github images not working anymore bruh
-<p align="center"> <img width="600" height="700" src="https://i.pinimg.com/736x/d1/8a/ba/d18abae4c03c9b5da028a6d049d371bd.jpg"> </p>
+<p align="center"> <img width="600" height="600" src="https://i.pinimg.com/736x/92/fd/cb/92fdcbf75f91a11c2424e6370c0651b2.jpg"> </p>
 
 <p align="right"> . ꜱᴛᴀᴍᴘꜱ ɪ ʟɪᴋᴇ ^_^ ᴀɴᴅ ꜱᴏɴɢ 
 
